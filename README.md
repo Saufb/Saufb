@@ -49,4 +49,3 @@
 ## 📫 كيف توصل لي؟
 
 - **[GitHub](https://github.com/Saufb)**
-- **[إنستغرام](https://www.instagram.com/404mmz?igsh=aG00dHN2bHl2MWIx)**
