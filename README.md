@@ -1,4 +1,4 @@
-# Raf 👨‍💻  
+# Raf & Casper 👨‍💻  
 **Multi-Language Developer | Problem Solver | Coding Enthusiast**
 
 ## 🛠️ Technical Skills
