@@ -1,5 +1,5 @@
 # Raf & Casper 👨‍💻  
-**Multi-Language Developer | Problem Solver | Coding Enthusiast**
+**Multi-Language Developer | Problem Solver | Cybersecurity & Penetration Testing**
 
 ## 🛠️ Technical Skills
 
